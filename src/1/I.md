@@ -2,7 +2,7 @@
 
 No coração do Vale de Alvorada, onde as montanhas se erguem majestosas e os riachos fluem cristalinos, a vida seguia seu curso tranquilo. Era ali, em meio à serenidade da natureza, que Ariel fazia sua morada. Foi também nesse vale abençoado que Sunshine foi deixada aos cuidados de Ariel, sendo essa uma região relativamente distante de Laridia.
 
-Sunshine, ainda com doze anos, não se lembrava claramente de seus pais. Seus dias começavam cedo, sempre com uma sensação de nostalgia e uma dor silenciosa no coração. Ela vivia com Ariel, uma mulher de cabelos prateados e olhos sábios, que a acolhera desde que ela podia se lembrar. "Vamos, Sunshine. Hoje temos muito a praticar," disse Ariel, sua voz suave, mas firme.
+Sunshine, ainda com doze anos, não se lembrava de seus pais ou de sua vida anterior em Laridia. Seus dias começavam cedo, sempre com uma sensação de nostalgia e uma dor silenciosa no coração. Ela vivia com Ariel, uma mulher de cabelos prateados e olhos sábios, que a acolhera desde que ela podia se lembrar. "Vamos, Sunshine. Hoje temos muito a praticar," disse Ariel, sua voz suave, mas firme.
 
 Sunshine observou Ariel com admiração e gratidão. Ariel era uma figura materna, sempre atenta e protetora. A pequena casa onde viviam ficava em um claro na floresta, cercada por árvores altas e flores silvestres. Era um refúgio tranquilo, onde a magia da natureza se fundia com os ensinamentos de Ariel.
 

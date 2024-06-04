@@ -26,4 +26,7 @@ Luna hesitou por um momento, seu olhar vagando entre Plum e Sunshine. Ela sabia 
 
 Plum engoliu em seco, sua mente girando com as possíveis exigências de Luna. “O que você quer em troca?”, perguntou ela, resignação pesando em suas palavras. Luna olhou para Plum com seriedade, sua expressão dura e implacável. “Você deve renunciar ao seu direito de sucessão”, declarou ela. “E abandonar sua filha”.
 
-A decisão foi devastadora para Plum, mas ela sabia que era a única maneira de proteger sua filha. Sunshine foi forçada a se afastar para uma cidade distante, onde encontrou refúgio ao lado de uma velha amiga de Plum, uma sábia mulher chamada Ariel. Enquanto seus pais permaneciam no reinado, governando com sabedoria e compaixão, Sunshine começava uma nova vida, longe das intrigas e dos perigos do palácio, mas sempre com a esperança de um dia entender seu verdadeiro legado.
+A decisão foi devastadora para Plum, mas ela sabia que era a única maneira de proteger sua filha. Escondida em seu quarto, Plum usou sua própria magia para conjurar um feitiço, apagando as memórias de Sunshine dos doze anos que convivera com seus pais em Laridia, a fim de proteger sua filha e a família real.
+
+Após isso, a criança foi abandonada pela mãe em uma região distante de Laridia, chamada Vale de Alvorada, um refúgio com a companhia de uma velha amiga de Plum, uma sábia mulher chamada Ariel. Enquanto seus pais permaneciam no reinado, governando com sabedoria e compaixão, Sunshine começava uma nova vida, longe das intrigas e dos perigos do palácio, mas sempre com a esperança de um dia entender seu verdadeiro legado.
+
